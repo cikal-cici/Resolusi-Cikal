@@ -16,7 +16,7 @@ Di Tahun 2026 ini saya berharap bisa menjadi jauh lebih baik dari Tahun-tahun se
 - Meningkatkan rasa percaya diri
 - Menjadi pribadi yang lebih sabar dalam menghadapi masalah
 - Tidak mudah mengeluh
-- Tidak banyak Overthingking
+- Tidak mudah Overthingking
 - Dapat mengatur waktu dengan lebih baik
 - Tidak menunda-nunda tugas
 
